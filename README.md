@@ -6,6 +6,6 @@ I'm currently based at **Plant & Food Research (PFR)**.
 
 🛠️ My goal is to develop **visual, user-friendly bioinformatics tools** that make research easier and more accessible for everyone.
 
-🤝 I enjoy collaborating and exchanging ideas — especially with **Bigfoot**!
+🤝 I enjoy collaborating and exchanging ideas — especially with people from various fields!
 
 ---
